@@ -7,3 +7,5 @@ I don't know what's cool. umm. what are you looking for. hahaha. that works.
 This is what Alice and Ted did on Ted's computer when working on the second feature.
 Alice navigated, Ted drove.
 
+Making new things to mess up in the GitHubs.
+Carol drove Ted was the Navigator.
